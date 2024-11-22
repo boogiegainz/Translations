@@ -1,1 +1,1 @@
-# YimMenu Translations
+# YeetModz Translations
